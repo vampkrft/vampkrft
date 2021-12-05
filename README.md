@@ -1,2 +1,2 @@
 👋 Hi, I’m @vampkrft
-sc: vampkrft
+You can contact me on sc: vampkrft
